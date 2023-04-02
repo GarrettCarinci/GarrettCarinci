@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Vue.js**
 
-- 👯 I’m looking to collaborate on **Creating new software and video game development**
+- 👯 I’m looking to collaborate on **creating new software and video game development**
 
 - 💬 Ask me about **C#, Javascript, SQL and Unity**
 

@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1S6gBQ5dWuHreS4vZj5UvfDJZwBWcOe7C/view?usp=sharing](https://drive.google.com/file/d/1S6gBQ5dWuHreS4vZj5UvfDJZwBWcOe7C/view?usp=sharing)
 
-- ⚡ Fun fact **Improving technology and the future one day at a time**
+- ⚡ **Improving technology and the future one day at a time**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
